@@ -4,6 +4,8 @@
 - [https://ssrssr.xyz](https://ssrssr.xyz) （建议收藏，此域名已启用301跳转）
 - [https://amcloud.fun](https://amcloud.fun)
 - [https://amcloud.top](https://amcloud.top)
+- [https://amcloud.life](https://amcloud.life)
+- [https://78ss.life](https://78ss.life)
 
 #### 已墙域名：
 - [https://80ss.xyz](https://80ss.xyz)
