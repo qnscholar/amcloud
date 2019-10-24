@@ -5,7 +5,7 @@
 - [https://amcloud.fun](https://amcloud.fun)
 - [https://amcloud.top](https://amcloud.top)
 - [https://amcloud.life](https://amcloud.life)
-- [https://78ss.life](https://78ss.life)
+- [https://78ss.xyz](https://78ss.xyz)
 
 #### 已墙域名：
 - [https://80ss.xyz](https://80ss.xyz)
